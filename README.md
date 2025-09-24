@@ -8,6 +8,7 @@
    WhatsApp: https://wa.we/+263713945017
 - Pronouns: His/him/he
 - Fun fact: You become what you want to be when you become.
+- STAY HUNGRY AND STAY FOOLISH -steve jobs
 
 <!---
 SOTA-NIGEL/SOTA-NIGEL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
