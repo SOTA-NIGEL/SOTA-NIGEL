@@ -1,8 +1,8 @@
-- Hi, I’m @SOTA-NIGEL
-- I’m interested in Machine Learning & software develpoment, and music at large
+- Hi, I’m SOTA NIGEL
+- An Aspiring Machine Learning Engineer | Software Developer, and Musician(pianist)
 - I’m currently going through specialization
 - I’m looking to collaborate on different software and improvements
-- How to reach you can reach me via email: sirspotsotar@gmail.com
+- How to reach you can reach me via email: sotanigel@gmail.com
    Linkedin: www.linkedin.com/in/nigel-panashe-sota-01666821a,
    Instagram: https://www.instagram.com/sotanigel_thepianist_zw/?__pwa=1#
    WhatsApp: https://wa.we/+263713945017
